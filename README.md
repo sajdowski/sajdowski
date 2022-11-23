@@ -1,1 +1,2 @@
-**Contact:** sajdowski.piotrek@gmail.com
+**EMAIL:** contact@sajdowski.com
+**WHATSAPP:** +353 896 106 078
