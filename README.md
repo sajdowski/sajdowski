@@ -1,2 +1,3 @@
-**EMAIL:** contact@sajdowski.com
-**WHATSAPP:** +353 896 106 078
+**Open for part-time, full-time, and contract jobs.**
+**Email:** contact@sajdowski.com
+**WhatsApp:** +353 896 106 078
